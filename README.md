@@ -1,2 +1,3 @@
 # hello-world
 sample project
+My name is Omiyale Akolade Dare i am a newby here i'm from Nigeria popularly known as the giant of africa...
